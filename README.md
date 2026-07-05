@@ -87,9 +87,9 @@ My goal is to work as a **Data Analyst**, where I can use data to identify patte
 
 ## 🤝 Connect With Me
 
-💼 LinkedIn: Add your LinkedIn profile link here
+💼 LinkedIn: https://www.linkedin.com/in/deepak-rastogi-63a97a298/
 
-📧 Email: Add your professional email here
+📧 Email: deepakrastogi20199@gmai.com
 
 ---
 
